@@ -1,0 +1,6 @@
+[[Bienvenue]]
+Nous sommes dix jeunes artistes qui aimons travailler en groupe. Nous avons chacun.e, en parallèle, nos pratiques personnelles. Ephémère, et non-reproductible, nos évènements sont pensés pour être conviviaux et embarquer au maximum le public.
+Nous aimons faire beaucoup avec peu, travailler in situ, nous adapter à un contexte.
+Au cœur du collectif, notre méthode : nous sommes un collectif-noyau qui réunit autour de lui des artistes invité.e.s. Chaque exposition est un temps de résidence, un cadre où tout les médiums et toutes les pratiques s’articulent : installation, construction, sculpture, performance, théâtre, tout est bienvenu. Le rôle du collectif est d’initier l’exposition en posant un décor (par exemple une usine ou un bosquet champêtre), un thème (banquet, travail à la chaîne) et une temporalité (une soirée, une semaine).
+Viennent ensuite s’accumuler les contributions, les histoires, à la manière d’un orchestre ou d’un chantier. Nous aménageons des espaces et des moments pour inventer à plusieurs, construire quelque chose d’inattendu en un temps limité, jusqu’au vernissage et à la fête.
+![[DSC_0206.jpg]]
