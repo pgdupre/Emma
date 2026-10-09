@@ -1,0 +1,7 @@
+[[Bienvenue]]
+Weekend d'exposition des diplômés de la Haute Ecole des Arts du Rhin, septembre 2021. Salle commune avec Chloé Marliot, Mélanie Battocchi et Stella Lacoste
+
+Nous avons monté une salle évolutive dédiée au  live, avec une programmation étalée sur tout le weekend. Sur le principe du café gourmand (un petit morceau de crème brûlée, une petite mousse au chocolat), nous avons proposé « des petits extraits » des performances qui ont vu le jour en cinq ans d’études. 
+Vous entrez le premier jour. La salle est vide pour le moment, seuls sont visibles au sol des scotchs noirs qui matérialisent des œuvres fictives. On vous en fait une visite guidée, en costard rose, avec un micro débranché. À 14 heures, un paperboard devant la porte annonce : « Découverte du monde merveilleux du verre ». Vous entrez, et découvrez une séance de soufflage de verre low cost, qui sent étrangement le caramel. Une demi-heure plus tard, la salle est en bazar, et trois femmes, silencieuses, se cousent sur les jambes des mots saisis à la volée. Si vous étiez revenu le lendemain, une colonne de terre aurait poussé en plein milieu du chemin, comme un résonateur géant. On vous aurait servi un énième café, en vous contant des anecdotes. Lorsque vous seriez repassé le soir, elles auraient été en plein karaoké, on aurait entendu résonner dans les couloirs la chanson de Sheila : mais oui, mais oui, l’école est finie…
+
+![[DSC_0098.jpg]]![[DSC_0048.jpg]]![[café2.jpg]]![[café3.jpg]]![[café0.jpg]]![[DSC_0003.jpg]]![[DSC_0051.jpg]]
