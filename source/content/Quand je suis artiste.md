@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 Films autobiographiques en images de synthèse 3D, issues de ma mémoire. Les évènements sont des vernissages, des expositions ou des résidences, des moments où je suis artiste à fond, et alors des choses étranges m'arrivent. La 3D approximative, le fond noir sans fin, les corps désarticulés ou trop mous, les danses désynchronisées sont utilisés pour "render" un monde de l'art drôle et bizarre. Série en cours, depuis 2019.
 
 **Paradise**
