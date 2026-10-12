@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[[index]]]
 Weekend d'exposition des diplômés de la Haute Ecole des Arts du Rhin, septembre 2021. Salle commune avec Chloé Marliot, Mélanie Battocchi et Stella Lacoste
 
 Nous avons monté une salle évolutive dédiée au  live, avec une programmation étalée sur tout le weekend. Sur le principe du café gourmand (un petit morceau de crème brûlée, une petite mousse au chocolat), nous avons proposé « des petits extraits » des performances qui ont vu le jour en cinq ans d’études. 
