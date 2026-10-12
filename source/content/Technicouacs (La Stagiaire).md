@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 Stage de 1ère année des Beaux Arts d'Ida Ménard. Exposition commune des objets créées en un mois, professionnelle versus stagiaire. 
 **Bien fait = mal fait = pas fait**
