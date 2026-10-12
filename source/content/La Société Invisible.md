@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 Société composée de Dimae (patronne invisible), Marguerite Kalt, Jeanne Bargas, Mélanie Battocchi, Chloé Marliot et Emma Dupré (Etoiles montantes de la Profession)
 
