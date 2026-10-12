@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 Projet avec la compagnie de danse L'Involontaire : Mikaël Crampon, Pascale Guirimand, Bertille Guillot, Rémi François, Michel Briand, Mélanie Battocchi, Emma Dupré.
 
