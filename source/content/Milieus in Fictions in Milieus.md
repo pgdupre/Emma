@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 Résidence collective au Casino Display, Luxembourg, pour la deuxième édition du Research Lab (programme de recherche en arts). 2023-2024, séminaires, écriture d'une édition commune, exposition expérimentale. Casting et coordination : Charles Rouleau.
 
 https://casino-luxembourg.lu/en/casino-display
