@@ -1,5 +1,5 @@
 ---
-title: Bienvenue chez moi
+title: Bienvenue
 tags:
   - Emma
   - DUPRE
