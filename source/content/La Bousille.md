@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 2021, avec Mélanie Battocchi
 Pratique contemporaine du "bousillage" verrier, qui consistait en usine à créer en douce et gratuitement des objets avec les outils de l'atelier, sur le temps de pause ou après la débauche.
