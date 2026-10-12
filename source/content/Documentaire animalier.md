@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 Résidence d'artiste en milieu scolaire, 2023-2024 Lycée Techniques des Arts et Métiers de Luxembourg
 En partenariat avec le LTAM (Nicole Lanners, Edmond Oliveira), le Casino Display (Charles Rouleau) et la fondation Sommer.
