@@ -1,4 +1,4 @@
-[[Index]]
+[[index]]
 
 ![[ok cam face 0491.jpg]]
 ![[grand palais.jpg]]
