@@ -1,4 +1,4 @@
-[[Bienvenue]]
+[[index]]
 
 Hiver 2019, avec Stella Lacoste
 
