@@ -1,4 +1,3 @@
-yaml
 ---
 title: Bienvenue chez moi
 tags:
